@@ -1,0 +1,1 @@
+# magokorosouken.github.io
